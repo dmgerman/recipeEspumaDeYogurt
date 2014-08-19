@@ -1,30 +1,32 @@
 EspumaDeYogurt
-
+================
 
 It is fairly simple and the ratios are easy to remember:
 
 6-2-1
 
-or if you have a 500ml syphon:
+or if you have a 500ml siphon:
 
-375 ml of yogurt
-125 ml of whipping cream (35%)
- 62.5 gr of sugar
+- 375 ml of yogurt
+- 125 ml of whipping cream (35%)
+- 62.5 gr of sugar
+- 2 cartridges of NO2
 
-- simply mix until the sugar is fully incorporated, put into the syphon
-(I always sieve what I put in the syphon to avoid clogging it) and 
-- charge with 1 charge (NO2), shake vigorously
-- charge again with second charge.
+
+- mix all ingredients by hand until the sugar is fully incorporated, 
+- pour mix into the siphon (I always sieve what I put in the siphon to avoid clogging it) 
+- charge with 1 cartridge (NO2), shake vigorously
+- charge again with second cartridge.
 - shake as much as you can
 
 put in the fridge for a couple of hours (important)
 
-ready to serve? shake it a bit and serve.
+ready to serve? shake it and serve.
 
 You can vary the ratios, but the cream is important (NO2 binds to
 fat). I have seen recipes with as low as 1/5 of the yogurt. 
 
-my prefer topping is simply honey. It goes extremely well with it.
+my preferred topping is simply honey. It goes extremely well with it.
 
 Now, my variations:
 
